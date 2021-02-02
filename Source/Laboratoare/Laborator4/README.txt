@@ -1,0 +1,1 @@
+Sistemul solar e in dreapta cum deschizi.
